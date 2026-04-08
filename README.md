@@ -38,4 +38,4 @@
                                                 
 ![screenshot_20260408-193636_discord](https://github.com/user-attachments/assets/7994f011-62c1-413e-b9c9-8a64a533edc9)
                                  
-                                             my silly lapdop @xzuxui
+                                             my silly homeless lapdog @xzuxui
