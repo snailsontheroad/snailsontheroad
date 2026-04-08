@@ -1,7 +1,7 @@
                                                    Hai haii
 
                                                    
-                                               my name is Zeniea/Dior
+                                           my name is Zeniea/Dior/Nmaki
                                                
                                                
                                 c+h freely! w2int anytime, mostly offtab or with  friends
@@ -30,3 +30,12 @@
 
 
    ![3a3b4a42ba37b378a735b6c2f0708a6](https://github.com/user-attachments/assets/7bf9f8af-091c-4e29-a399-e233bb1678c4)
+
+                                          "i wish i was one of your tears 
+                                           so i could be born in your eyes
+                                                run down your cheek
+                                                and die on your lips"
+                                                
+![screenshot_20260408-193636_discord](https://github.com/user-attachments/assets/7994f011-62c1-413e-b9c9-8a64a533edc9)
+                                 
+                                             my silly lapdop @xzuxui
