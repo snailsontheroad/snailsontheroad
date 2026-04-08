@@ -24,7 +24,7 @@
                                   a big dino nerd! if you wanna yap about them, im all ears!
 
 
-                                  also in a bunch of fandoms! and i play gamess such as valorent,
+                                  also in a bunch of fandoms! and i play gamess such as valorant,
                                            genshin impact, minecraft, roblox, etc!
 
 
