@@ -25,7 +25,7 @@
 
 
                                   also in a bunch of fandoms! and i play gamess such as valorant,
-                                           genshin impact, minecraft, roblox, etc, path of titans, the isles etc!
+                               genshin impact, minecraft, roblox, etc, path of titans, the isles etc!
 
 
 
