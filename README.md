@@ -18,7 +18,7 @@
 
                                          always happy to make new friends!  
 
-                                 please do keep your violent/sexual tendancies to yourself
+                                please do keep your violent/sexual tendancies to yourself uvcf
    ![0a2ad4e7f9ebcc10096159240a379788](https://github.com/user-attachments/assets/fd9f8a04-c540-426b-a8c1-f6234d536370)
 
                                   a big dino nerd! if you wanna yap about them, im all ears!
